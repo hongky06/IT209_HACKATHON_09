@@ -1,0 +1,1 @@
+![Screenshot 2026-10-08 082204.png](../../Pictures/Screenshots/Screenshot%202026-10-08%20082204.png)
